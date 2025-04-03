@@ -26,3 +26,4 @@ I'm excited to share my latest project that's putting satellite technology to wo
 In the race against climate change, every tree counts. This isn't just technology - it's a digital guardian for our forests.
 
 **#AIForGood #ConservationTech #RemoteSensing #ClimateAction #DeforestationMonitoring**
+![image](https://github.com/user-attachments/assets/099122f4-d1be-4f84-b2b6-4f1a6be7f73b)
